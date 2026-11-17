@@ -1,0 +1,1 @@
+# Resid-ncia-em-IA-UFG-INF-
